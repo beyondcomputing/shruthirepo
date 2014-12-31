@@ -1,3 +1,3 @@
 shruthirepo
 ===========
-now ssnn gonna :dance:
+now ssnn gonna :pizza:
